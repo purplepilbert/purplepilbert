@@ -6,5 +6,5 @@
   <a href="https://sticksfight.atabook.org/">atabook </a> 🪻 <a href="https://purplytra.straw.page/">strawpage </a> <br>
   <img src=https://files.catbox.moe/55bps7.png width="300" height="500"> <br>
   fatigued a lot of the time b patient with me pls<br>
-  most of our ponies are kins or alters **it is not roleplaying!!**
+  most of our ponies are kins or alters
 </div>
