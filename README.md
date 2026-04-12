@@ -19,5 +19,5 @@
   <img src=https://64.media.tumblr.com/8a79b58ae20d74bdec5d741c4dc7332c/c95038ff29ace828-53/s100x200/0c265398b2890b96b68e7f4fc12a3f427ea65240.pnj width=100>   <img src=https://64.media.tumblr.com/3b74992c369bafe86206d4ae0b675614/a346318001d56fe4-c7/s100x200/5499c7edaf07ce3a450a2613f81d9c066cccf0c7.pnj width=100>   <img src=https://64.media.tumblr.com/5d3528bb356bacb9554ae1b64e9cd3d3/a346318001d56fe4-44/s100x200/9d88506e13e5785453a08f8f89f37d4594db1886.pnj width=100>   <img src=https://64.media.tumblr.com/51899f8aeb4e144babfee9b0b1312ac8/735ea42ea02187eb-a3/s100x200/cc2d65081146255d9faca66ff8174d552964e99c.pnj width=100>
   <br>
   <br>
-  <img src=https://ibb.co/ymsjvc7x width=300>
+  <a href="https://ibb.co/ymsjvc7x"><img src="https://i.ibb.co/ymsjvc7x/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png" alt="Screenshot-2026-04-12-4-56-33-AM-removebg-preview" border="0"></a>
 </p>
