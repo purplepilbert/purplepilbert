@@ -21,9 +21,11 @@
   </p>
   <br>
   <br>
+<p align="left">
 <sub> this is me and my gf btw </sub> <br>
 <img src=https://i.postimg.cc/J7ct01PL/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png width=300>
 <br>
+</p>
 <p align="center">
 ➤ we have a HORRIBLE memory so if you're one of my friends (who isn't close) and we don't remember you please don't get upset, on top of that i'm in a bad mood a lot of the time so pls iwcuc at all times ^_^""
 </p>
