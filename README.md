@@ -18,8 +18,7 @@
   <br>
   <img src=https://64.media.tumblr.com/8a79b58ae20d74bdec5d741c4dc7332c/c95038ff29ace828-53/s100x200/0c265398b2890b96b68e7f4fc12a3f427ea65240.pnj width=100>   <img src=https://64.media.tumblr.com/3b74992c369bafe86206d4ae0b675614/a346318001d56fe4-c7/s100x200/5499c7edaf07ce3a450a2613f81d9c066cccf0c7.pnj width=100>   <img src=https://64.media.tumblr.com/5d3528bb356bacb9554ae1b64e9cd3d3/a346318001d56fe4-44/s100x200/9d88506e13e5785453a08f8f89f37d4594db1886.pnj width=100>   <img src=https://64.media.tumblr.com/51899f8aeb4e144babfee9b0b1312ac8/735ea42ea02187eb-a3/s100x200/cc2d65081146255d9faca66ff8174d552964e99c.pnj width=100> <br>
   <img src=https://64.media.tumblr.com/a72f0e31e40dbe5add31db847a1dfe26/a4c71817eda70ea5-7d/s640x960/e17869a47f04e9da8bc6cc4c9bf024ff748d7820.gifv width=500>
-  <br>
+  </p>
 <sub> this is me and my gf btw </sub> <br>
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/J7ct01PL/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png' border='0' alt='Screenshot-2026-04-12-4-56-33-AM-removebg-preview' width=350></a> <br>
-</p>
 ➤ we have a HORRIBLE memory so if you're one of my friends (who isn't close) and we don't remember you please don't get upset, on top of that i'm in a bad mood a lot of the time so pls iwcuc at all times ^_^""
