@@ -8,7 +8,7 @@
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
   <br>
   <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=400> <br>
-  ➤ hi hellloooo!! i'm <b> purple </b> or fillian or anything u know me by i dont rlly carreeee ^_^ <br>
+  ➤ hi hellloooo!! i'm <b> purple </b> / fillian or whatever you know me by! i don't really care what u call me as long as you ask first!
   <br>
   ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, alex g, searching for a world that doesn't exist, minecraft (im getting into smps...ok...), object shows, bfdi, saiki k, mha, birds n dogs (specifically scarlet macaws and border collies), sea lions, and a whole buncha other stuff
 </p>
