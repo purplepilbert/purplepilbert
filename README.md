@@ -8,7 +8,7 @@
   <br>
   <br>
   <img src=https://64.media.tumblr.com/a72f0e31e40dbe5add31db847a1dfe26/a4c71817eda70ea5-7d/s640x960/e17869a47f04e9da8bc6cc4c9bf024ff748d7820.gifv>
-  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300 height=500>
+  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300 height=700>
   <br>
   <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=400> <br>
   ➤ hi hellloooo!! i'm <b> purple </b> / fillian or whatever you know me by! i don't really care what u call me as long as you ask first! <sub><sup>(i love nicknames..pls give me a nickname..)</sup></sub><br>
