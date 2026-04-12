@@ -5,5 +5,5 @@
   <br>
   this is work in progress apologies for the lack of decoration....
   <br>
-  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=500>
+  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
 </p>
