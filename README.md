@@ -7,5 +7,6 @@
   <br>
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
   <br>
-  <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=600>
+  <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=600> <br>
+  - hi hellloooo!! i'm purple or fillian or anything u know me by i dont rlly carreeee ^_^
 </p>
