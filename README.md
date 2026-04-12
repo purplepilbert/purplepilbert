@@ -4,4 +4,6 @@
   https://sticksfight.atabook.org/
   <br>
   this is work in progress apologies for the lack of decoration....
+  <br>
+  <img src="https://i.pinimg.com/1200x/d4/0a/70/d40a70ddae6d1e217f481ab6bedf8769.jpg">
 </p>
