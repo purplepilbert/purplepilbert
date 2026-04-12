@@ -8,9 +8,9 @@
   <br>
   <br>
   <img src=https://64.media.tumblr.com/5bdfa850b91d4f9924a67b08de60a4c6/b15d23a765658ea4-ca/s1280x1920/e10bc7bed2451abb29eb678dc73b57b6a366dee5.pnj>
-  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300 height=500>
+  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=400 height=500>
   <br>
-  <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=300 height=> <br>
+  <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=400> <br>
   ➤ hi hellloooo!! i'm <b> purple </b> / fillian or whatever you know me by! i don't really care what u call me as long as you ask first! <sub><sup>(i love nicknames..pls give me a nickname..)</sup></sub><br>
   <br>
   ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, alex g, searching for a world that doesn't exist, minecraft (im getting into smps...ok...), object shows, bfdi, saiki k, mha, birds n dogs (specifically scarlet macaws and border collies), sea lions, and a whole buncha other stuff
