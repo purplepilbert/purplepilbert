@@ -13,4 +13,6 @@
   ➤ hi hellloooo!! i'm <b> purple </b> / fillian or whatever you know me by! i don't really care what u call me as long as you ask first! <sub><sup>(i love nicknames..pls give me a nickname..)</sup></sub><br>
   <br>
   ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, alex g, searching for a world that doesn't exist, minecraft (im getting into smps...ok...), object shows, bfdi, saiki k, mha, birds n dogs (specifically scarlet macaws and border collies), sea lions, and a whole buncha other stuff
+  <br>
+  <img src=https://64.media.tumblr.com/8a79b58ae20d74bdec5d741c4dc7332c/c95038ff29ace828-53/s100x200/0c265398b2890b96b68e7f4fc12a3f427ea65240.pnj width=100>
 </p>
