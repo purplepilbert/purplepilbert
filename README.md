@@ -6,4 +6,6 @@
   this is work in progress apologies for the lack of decoration....
   <br>
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
+  <br>
+  <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=100>
 </p>
