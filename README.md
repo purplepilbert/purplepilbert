@@ -33,6 +33,6 @@
   ➤ i am a system, don't try to fakeclaim me you're no medical professional and you'll be hidden if you do so! i'm not looking for any sorts of syscourse
 <br>
   <br>
-  [atabook](https://sticksfight.atabook.org/) ➜ [pronouns.cc](https://pronouns.cc/@greenzilla4) ➜ strawpage wip
+  <a href="https://sticksfight.atabook.org/">atabook</a> (https://sticksfight.atabook.org/) ➜ <a href="https://pronouns.cc/@greenzilla4">pronouns.cc</a> ➜ strawpage wip
 </a>
 </p>
