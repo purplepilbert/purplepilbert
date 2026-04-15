@@ -33,7 +33,9 @@
   ➤ i am a system, don't try to fakeclaim me you're no medical professional and you'll be hidden if you do so! i'm not looking for any sorts of syscourse
 <br>
   <br>
-  <img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=100> <img src="https://media.tenor.com/irFXJIn5sHkAAAAj/minecraft.gif" width=100> <img src="https://media.tenor.com/1aTxYPqs6zsAAAAj/minecraft-enchanted-book.gif" width=100>
+  <img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=100>
+  <img src="https://media.tenor.com/irFXJIn5sHkAAAAj/minecraft.gif" width=100> 
+<img src="https://media.tenor.com/1aTxYPqs6zsAAAAj/minecraft-enchanted-book.gif" width=100>
 
 </a>
 </p>
