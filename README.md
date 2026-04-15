@@ -33,6 +33,6 @@
   ➤ i am a system, don't try to fakeclaim me you're no medical professional and you'll be hidden if you do so! i'm not looking for any sorts of syscourse
 <br>
   <br>
-  <img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=10/>
+  <img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=10>
 </a>
 </p>
